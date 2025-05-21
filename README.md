@@ -4,3 +4,5 @@
 - meu e-mail é pietro.martemev@escola.pr.gov.br
 - top 1 global free fire
 - futuro presidente
+- 🐐 🎀 𝒜𝓃𝒹𝓇é 🎀 🐐
+- Alceu corno
