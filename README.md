@@ -6,3 +6,4 @@
 - 🐐 🎀 𝒜𝓃𝒹𝓇é 🎀 🐐
 - LeBron James MVP do Word
 - Sinistro
+- só Deus sabe como que ta a mente do palhaço
