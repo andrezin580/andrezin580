@@ -6,3 +6,4 @@
 - futuro presidente
 - 🐐 🎀 𝒜𝓃𝒹𝓇é 🎀 🐐
 - Alceu corno
+- LeBron James mvp do word
