@@ -5,3 +5,4 @@
 - futuro presidente
 - 🐐 🎀 𝒜𝓃𝒹𝓇é 🎀 🐐
 - LeBron James MVP do Word
+- Sinistro
