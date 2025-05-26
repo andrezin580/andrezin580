@@ -1,6 +1,6 @@
  # Hello My name is Andre
 - mundial de clubes 2012
-- meu e-mail é pietro.martemev@escola.pr.gov.br
+- meu e-mail é andre.tauscheck.miguel@escola.pr.gov.br
 - top 1 global de free fire
 - futuro presidente
 - 🐐 🎀 𝒜𝓃𝒹𝓇é 🎀 🐐
