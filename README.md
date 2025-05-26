@@ -8,5 +8,5 @@
 - LeBron James MVP do Word
 - Sinistro
 - só Deus sabe como que ta a mente do palhaço
-- ![JuninhoPernambucanoGIF](https://github.com/user-attachments/assets/dc02c163-8cac-49d9-b569-0829ba20d1cd)
+- ![Uploading Cr7GIF.gif…]()
 
