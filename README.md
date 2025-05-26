@@ -8,4 +8,4 @@
 - LeBron James MVP do Word
 - Sinistro
 - só Deus sabe como que ta a mente do palhaço
-![Uploading LebronScreamGIF.gif…]()
+- ![Uploading LebronScreamGIF.gif…]()
