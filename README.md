@@ -3,6 +3,7 @@
 - meu e-mail é andre.tauscheck.miguel@escola.pr.gov.br
 - top 1 global de free fire
 - futuro presidente
+- SCCP 1910
 - 🐐 🎀 𝒜𝓃𝒹𝓇é 🎀 🐐
 - LeBron James MVP do Word
 - Sinistro
